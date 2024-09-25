@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lblima038
 - 👀 I’m interested in learn more about programming 
 - 🌱 I’m currently learning at Cesar school
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on a mutual love
 - 📫 How to reach me: +55 (81) 997575188
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I've two dogs: one is a shih-tzu who's called Zeus, and the another is a Rottweiler, but her name is Luna 😂
